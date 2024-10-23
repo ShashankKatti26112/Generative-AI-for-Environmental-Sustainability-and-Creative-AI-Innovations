@@ -1,1 +1,1 @@
-# Generative-AI-for-Environmental-Sustainability-and-Creative-AI-Innovations
+HACKATHON-2024
